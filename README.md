@@ -1,0 +1,2 @@
+# UAS_AKB_10120059_IF2
+Tugas Pengganti UAS AKB
